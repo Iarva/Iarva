@@ -15,7 +15,7 @@
 　 $\color{#ADADAD}{\textsf{Metaphysics　Epistemology　Mechanophilia　Hoplology}}$<br>
 　 $\color{Grey}{\textsf{Speedrunning　AI (no, not genAI)　Sweet/EGL Lolita}}$ ++<br>
   <br>
-⠀<img src="https://files.catbox.moe/fbss99.gif"><img src="https://files.catbox.moe/fbss99.gif"><img src="https://files.catbox.moe/fbss99.gif"><br>
+<img src="https://files.catbox.moe/fbss99.gif"><img src="https://files.catbox.moe/fbss99.gif"><img src="https://files.catbox.moe/fbss99.gif"><br>
   <br>
 $\color{Red}{\textsf{Formally known as,}}$<br>
   ﹢ $\color{#ADADAD}{\textsf{Mr. Thermonuclear Weapon}}$<br>
