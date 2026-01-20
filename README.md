@@ -1,9 +1,10 @@
-<img src="https://files.catbox.moe/0du009.png" align="left" align="left"><br>
+<img src="https://files.catbox.moe/0du009.png" align="left"><br>
 > [!CAUTION]
-> $\color{Red}\Huge{\textsf{CHAR}}$　24M↑　![](https://files.catbox.moe/n9lecw.webp)![](https://files.catbox.moe/be5eg4.gif)![](https://files.catbox.moe/39or2d.png)　off-tab.　⨺⃝<br>
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&cover_image=true&theme=novatorem&show_offline=false&background_color=808080&interchange=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&redirect=true)<br>
+> 　　 $\color{Red}\Huge{\textsf{CHAR}}$　24M↑　![](https://files.catbox.moe/n9lecw.webp)![](https://files.catbox.moe/x0kmf0.gif)![](https://files.catbox.moe/pwis7e.gif)　off-tab.　⨺⃝<br>
+<img src="https://files.catbox.moe/toau6d.gif" align="top"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&cover_image=true&theme=novatorem&show_offline=false&background_color=808080&interchange=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&redirect=true) <img src="https://files.catbox.moe/pr0qzj.gif" align="top"><br>
+　 $\color{Grey}{\textsf{BURN IT TO THE GROUND,}}$ $\color{Red}{\textsf{GAMMA CREMATORIUM}}$
 <details>
-　<summary><img src="https://files.catbox.moe/bpvzsb.gif">　　 $\color{Grey}{\textsf{How heavy is the}}$ $\color{Red}{\textsf{weight of the world?}}$</summary>
+　<summary><img src="https://files.catbox.moe/8t15sd.gif"> 　 <img src="https://files.catbox.moe/7pmldf.png" align="top"></summary>
   <br>
   <br>
   <br>
